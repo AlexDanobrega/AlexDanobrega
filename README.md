@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AlexDanobrega
 - 👀 I’m interested in Technology
-- 🌱 I’m currently helping business innovate, plan, and implement new technologies ...
+- 🌱 I’m currently helping businesses In Australia, innovate, plan, and implement new technologies ...
 - 💞️ I’m looking to collaborate. 
 - 📫 How to reach me via LinkedIn @ alex danobrega 
 - ⚡ Fun fact: I love cars 🏎️
